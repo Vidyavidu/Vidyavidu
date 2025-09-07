@@ -2,9 +2,9 @@
 
 - 🔭 I’m currently working on projects
 - 🌱 I’m currently learning engineering
-- 👯 I’m looking to collaborate on companies
-# 💫 About Me:
-i am a student studing in 3rd year engineering and a python programmer 
+- 👯 I’m looking to collaborate on companie
+hi 🙋 i'm Vidya 
+It's not about IDEAS it's about making ideas HAPPEN
 
 
 ## 🌐 Socials:
