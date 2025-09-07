@@ -1,10 +1,11 @@
 
+hi 🙋 i'm Vidya 
+It's not about IDEAS it's about making ideas HAPPEN
 
 - 🔭 I’m currently working on projects
 - 🌱 I’m currently learning engineering
 - 👯 I’m looking to collaborate on companie
-hi 🙋 i'm Vidya 
-It's not about IDEAS it's about making ideas HAPPEN
+
 
 
 ## 🌐 Socials:
