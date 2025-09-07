@@ -1,5 +1,5 @@
+**Hi 🙋 i'm Vidya **
 
-hi 🙋 i'm Vidya 
 It's not about IDEAS it's about making ideas HAPPEN
 
 - 🔭 I’m currently working on projects
